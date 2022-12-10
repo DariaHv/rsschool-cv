@@ -14,7 +14,7 @@ SKILLS
 
 LANGUAGES
 
-* Russian - Mother tongue
+* Russian - Native
 * English – Conversational
 
 WORK EXPERIENCE
